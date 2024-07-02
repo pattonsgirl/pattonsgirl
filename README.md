@@ -14,3 +14,11 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+You may know me as Kayleigh Duncan, Instructor at Wright State University
+
+Pinned you'll find my projects & material used in courses I teach at WSU.
+
+I like to: 🎮🧩🛶
+
+I grow: 🥦🥒🧄🍈🍆🥬🌶🥕🍅🍓 and whatever else I impluse buy seed packets for
