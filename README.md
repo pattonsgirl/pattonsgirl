@@ -19,6 +19,6 @@ You may know me as Kayleigh Duncan, Instructor at Wright State University
 
 Pinned you'll find my projects & material used in courses I teach at WSU.
 
-I like to: 🎮🧩🛶
+Check out [Boffin Factory](https://github.com/BoffinFactory) for informal student learning opportunities
 
 I grow: 🥦🥒🧄🍈🍆🥬🌶🥕🍅🍓 and whatever else I impluse buy seed packets for
