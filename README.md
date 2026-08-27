@@ -8,4 +8,4 @@ Check out [Boffin Factory](https://github.com/BoffinFactory) for informal studen
 
 I enjoy kayaking and gardening.
 
-Make some edit in class.
+Made some edits in class.
